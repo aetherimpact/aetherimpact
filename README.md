@@ -1,6 +1,7 @@
 ### *aether !!*
 
 aka ves/angel/other names ^-^
+
 21, they/he, taken, en/fr/少し日本語
 
 often idling off-tab or afk. if i seem unresponsive, whisper me! ill probably notice eventually!!
